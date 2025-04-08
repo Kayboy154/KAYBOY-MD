@@ -59,4 +59,4 @@ Stay updated by joining our official WhatsApp channel:
 
 ## 🙏 Thank You!
 
-**Developed by [KAYBOY](https://github.com/mayelprince)**
+**Developed by [KAYBOY](https://github.com/Kayboy154)**
