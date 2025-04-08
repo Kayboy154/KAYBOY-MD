@@ -1,7 +1,7 @@
 
 # Best W/A bot created by KAYBOY 🌝💚
 
-![Bot Image](https://files.catbox.moe/kzfne8.jpeg)
+![Bot Image](https://files.catbox.moe/v13b54.jpg)
 
 **Simple and Best WhatsApp Bot Created by [KEITH AMINI](https://github.com/mayelprince)**
 
